@@ -1,3 +1,0 @@
-PNH
-
-Mordaste
